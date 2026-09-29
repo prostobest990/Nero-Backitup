@@ -220,4 +220,4 @@ Nero BackItUp is available as a complete free version, with all features unlocke
 Take the first step in safeguarding your digital life. **Download Nero BackItUp for free today!**
 
 ---
-**Last updated:** 2026-09-28 20:54:00 UTC
+**Last updated:** 2026-09-29 00:41:41 UTC
